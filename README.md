@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **MichaelCheung101@gmail.com**
 
-- ⚡ Fun fact **I love sweets**
+- ⚡ Fun fact **I LOVE SWEETS**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
